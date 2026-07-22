@@ -1,6 +1,6 @@
 
 <p align="center"> sam　　︵　　they 　/　 them </p>
-<p align="center"> 7teen  audhd  dyslexia </p>
+<p align="center"> 8teen  audhd  dyslexia </p>
 <div align="center">
 
 <code> [rentry](https://rentry.co/valesha)　　[prns](https://en.pronouns.page/@alyosha)　　[strwpg](https://pupsha.straw.page)　　[新book](https://alyosha.atabook.org/) </code>
